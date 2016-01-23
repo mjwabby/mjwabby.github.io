@@ -2,6 +2,6 @@
 
 This is my in progress portfolio.
 
-Backlinks to other sites:
+Links:
 
-(To be added to later)
+Linkedin: https://www.linkedin.com/in/michael-wilkerson-311465113
